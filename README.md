@@ -75,7 +75,7 @@
     Discord Server:  https://discord.gg/CVgscsvRRx
     Telegram Channel https://t.me/otpbotc
     DM Discord: Coder089#8305
-    DM Telegram: @Coder00089
+    DM Telegram: @john145969
 Discord Server: https://discord.gg/CVgscsvRRx
 
 NEW Telegram Channel https://t.me/otpbotc
